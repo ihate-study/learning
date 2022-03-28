@@ -1,0 +1,2 @@
+# learning
+batch picture making
